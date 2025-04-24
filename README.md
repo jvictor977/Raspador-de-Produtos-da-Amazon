@@ -1,0 +1,1 @@
+# Raspador-de-Produtos-da-Amazon
